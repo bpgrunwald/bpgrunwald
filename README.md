@@ -8,4 +8,4 @@
 - 
 - 📫 You can reach me on my LinkedIn if there is any specific project you think I could help you with.
 - 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm a huge fan of DIY. I am always on the lookout for new projects I could do. Everything I have involves some level of DIY component.
