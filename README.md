@@ -1,0 +1,11 @@
+- 👋 Hi, my name is Patrik Grunwald.
+- 
+- 👀 I’m interested in tech and I am in trying to progress in the industry. I am trying to challenge myself to develop and get into cybersecurity.
+- 
+- 🌱 I studied Computer Science at university as well as I have completed an IT Technician bootcamp to learn more about hardwarte and networks.
+- 
+- 💞️ I’m looking to collaborate on projects that can help further develop technology as well as give me something new to learn.
+- 
+- 📫 You can reach me on my LinkedIn if there is any specific project you think I would be useful with.
+- 
+- ⚡ Fun fact: ...
