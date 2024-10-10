@@ -6,6 +6,6 @@
 - 
 - 💞️ I’m looking to collaborate on projects that can help further develop technology as well as give me something new to learn.
 - 
-- 📫 You can reach me on my LinkedIn if there is any specific project you think I would be useful with.
+- 📫 You can reach me on my LinkedIn if there is any specific project you think I could help you with.
 - 
 - ⚡ Fun fact: ...
